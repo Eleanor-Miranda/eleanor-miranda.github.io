@@ -1,1 +1,1 @@
-# eleanormiranda.github.io
+# eleanor-miranda.github.io
